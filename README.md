@@ -1,6 +1,7 @@
-[Telegram Public]()
+if you need to contact me you can write to my email address
 
-If you want faster answer for your question, send message/question to Telegram (link below), not email!
+📬 Contacto: [contact.krypton012@passinbox.com](mailto:contact.krypton012@passinbox.com)
+
 
 ---
 
